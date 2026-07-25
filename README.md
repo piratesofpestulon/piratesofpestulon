@@ -8,6 +8,6 @@ i implore you to whisper to get my attention, i tab out a lot, so if i dont resp
 <p align="center">
 im big into batman rogues at the moment, but youre also free to talk to me about;</br> <b>kill the past/suda51, 90s point&click adventures</b>, ace attorney, and movies made before like 2005. some bands i really enjoy too are soundgarden, ween, and blur :)</p>
 
-<p align="center"><i>lastly, i block VERY liberally without a care in the world.</br>minors back off, proshippers ill explode you,</br>and id really like it if outlast fans didnt interact.</i>
+<p align="center"><i>lastly, <b>i block VERY liberally without a care in the world.</b></br>minors back off, proshippers ill explode you,</br>and id really like it if outlast fans didnt interact.</i>
   </br><img src="https://file.garden/ZiuWbi4JIhsmuyWF/duuuuuuuh.jpg"/></p>
 </p>
