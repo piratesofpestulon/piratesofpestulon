@@ -11,6 +11,8 @@ im big into dc comics (JLI + batman rogues) at the moment, but youre also free t
 <img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/NMH"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/KICK.gif"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/yaoistamp"/>
 </p>
 
-<p align="center"><i>lastly, <b>i block VERY liberally without a care in the world.</b> if i sit on some bum lmk</br>minors back off, proshippers ill explode you,</br>and id really like it if outlast fans didnt interact.</i>
+<p align="center">
+  try and talk to me about the batfam and ill slap you in the teeth. AND I LOVE BATJOKES AND IDGAF ABT JASON TODD</br>
+  <i>lastly, <b>i block VERY liberally without a care in the world.</b> if i sit on some bum lmk</br>minors back off, proshippers ill explode you,</br>and id really like it if outlast fans didnt interact.</i>
   </br><img src="https://file.garden/ZiuWbi4JIhsmuyWF/duuuuuuuh.jpg"/></p>
 </p>
