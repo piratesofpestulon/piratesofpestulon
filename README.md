@@ -13,6 +13,6 @@ im big into dc comics (JLI + batman rogues) at the moment, but youre also free t
 
 <p align="center">
   try and talk to me about the batfam and ill slap you in the teeth. AND I LOVE BATJOKES AND IDGAF ABT JASON TODD</br>
-  <i>lastly, <b>i block VERY liberally without a care in the world.</b> if i sit on some bum lmk</br>minors back off, proshippers ill explode you,</br>and id really like it if outlast fans didnt interact.</i>
+  <i>lastly, <b>i block without a care in the world.</b> if i sit on some bum lmk. proshippers, and outlast or bftd fans hide me b4 i kill you. and, kindly, minors DNI</i>
   </br><img src="https://file.garden/ZiuWbi4JIhsmuyWF/duuuuuuuh.jpg"/></p>
 </p>
