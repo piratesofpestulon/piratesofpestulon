@@ -8,7 +8,7 @@ i implore you to whisper to get my attention, i tab out a lot, so if i dont resp
 <p align="center">
 im big into dc comics (JLI + batman rogues) at the moment, but youre also free to talk to me abt; <b>kill the past/suda51, 90s point&click adventures</b>, ace attorney, and movies made before like 2005. some bands i really enjoy too are soundgarden, ween, and blur :)
 <br>
-<img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/NMH"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/KICK.gif"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/yaoistamp.png"/>
+<img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/spacequeststamp.png"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/NMH"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/KICK.gif"/><img src="https://file.garden/ZiuWbi4JIhsmuyWF/graphics/yaoistamp.png"/>
 </p>
 
 <p align="center">
